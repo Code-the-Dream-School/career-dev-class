@@ -1,6 +1,6 @@
 # Recorded Video
 
-https://www.youtube.com/watch?v=DJNLwJ_zsCE
+[Resumes, LinkedIn, and Interviewing](https://www.youtube.com/watch?v=DJNLwJ_zsCE)
 
 This 1+ hour video is a recording from a previous practicum career class and provides a brief summary of the content for this week. For more examples and detailed explanations, please read the written content below.
 
